@@ -2,7 +2,7 @@
 
 Licenciatura en Actuaría FCFM_UANL
 
-Semestre agosto-diciemnre 2023
+Semestre agosto-diciembre 2023
 
 Alexandra Valdez 1910361
 
